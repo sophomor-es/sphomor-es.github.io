@@ -1,1 +1,0 @@
-# sphomor-es.github.io
